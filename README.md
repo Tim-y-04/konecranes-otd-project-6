@@ -1,0 +1,1 @@
+# konecranes-otd-project-6
